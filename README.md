@@ -45,7 +45,7 @@
 
 
 ## 📫 Contact
-Feel free to reach out to me at 💬[drposeidon92@gmail.com]💬 or connect with me on [LinkedIn](https://www.linkedin.com/in/yiming-deng-8b63932a2)https://www.linkedin.com/in/yiming-deng-8b63932a2)).
+Feel free to reach out to me at 💬[drposeidon92@gmail.com]💬.
 
 
 <!--
